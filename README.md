@@ -11,6 +11,8 @@ GO BEYOND ✴️✳️
  𝐋𝐞𝐧𝐠𝐞𝐝𝐚𝐫𝐲 𝐥𝐨𝐯𝐞𝐫𝐬 💥🥦
 ![Foto para compartir bakugo y deku.jpeg](https://github.com/user-attachments/assets/69d3da28-5f85-4b7f-8390-1acc01afe710)
 
-stolitz? ejem no.
+𝘴𝘵𝘰𝘭𝘪𝘵𝘻? 𝘦𝘫𝘦𝘮 𝘯𝘰.
 
 ![Vassago nd Stolas (9).jpeg](https://github.com/user-attachments/assets/13c3351b-4060-459b-a9d3-5ccff4187c04)
+
+𝙁𝙪𝙘𝙠 𝙮𝙤𝙪, 𝙗𝙞𝙩𝙘𝙝!
