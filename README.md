@@ -18,10 +18,10 @@ GO BEYOND ✴️✳️
 ![Tumblr_ Image.gif](https://github.com/user-attachments/assets/20578dbe-fde0-4354-9be7-61ad922dde3f)
 
 
- 𝐋𝐞𝐧𝐠𝐞𝐝𝐚𝐫𝐲 𝐥𝐨𝐯𝐞𝐫𝐬 💥🥦
+ 
 ![Foto para compartir bakugo y deku.jpeg](https://github.com/user-attachments/assets/69d3da28-5f85-4b7f-8390-1acc01afe710)
 
-𝘴𝘵𝘰𝘭𝘪𝘵𝘻? 𝘦𝘫𝘦𝘮 𝘯𝘰.
+
 
 ![Vassago nd Stolas (9).jpeg](https://github.com/user-attachments/assets/13c3351b-4060-459b-a9d3-5ccff4187c04)
 
